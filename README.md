@@ -1,4 +1,4 @@
-### Bem vindo(a) ao meu perfil! 🏴󠁧󠁢󠁷󠁬󠁳󠁿
+### Bem vindo(a) ao meu perfil! 󠁧󠁢󠁷󠁬󠁳👻
 
 Meu nome é Cristiano 
 
@@ -9,4 +9,4 @@ Meu nome é Cristiano
  ### Você pode entrar em contato comigo  📫
   cristiano.paz.silva@escola.pr.gov.br
 
-![](https://media.tenor.com/OXn4ngtA1w4AAAAd/ryan-gosling.gif)
+![](https://media.tenor.com/6dlNDTGcbqYAAAAC/anime.gif)
